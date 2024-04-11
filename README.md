@@ -1,1 +1,1 @@
-![animalKingdom](https://github.com/elcorkum/apie_deepdive/assets/147072591/3518aaa9-baf2-4e9c-ac1c-8de199bfbd2f)
+![animal](https://github.com/elcorkum/apie_deepdive/assets/147072591/b942b8a2-1206-40ed-b476-8ef1897b18cd)
